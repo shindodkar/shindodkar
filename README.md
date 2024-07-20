@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **tanvishindodkar44@gmail.com**
 
-- ⚡ Fun fact **All gonna be all right**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
